@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-RURR750219HSPZMC06
+RURR750219HSPZMC06
